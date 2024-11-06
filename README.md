@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Anusha Ambati
 - 👀 I’m interested in Data modelling, data visualization and analytics
-- 🌱 Currently working as Data Analyst
+- 🌱 Currently working as Risk Analyst
 - 💞️ Looking to explore the next opportunities in my career
 - 📫 How to reach me@ anusha56ambati@gmail.com
 - 😄 Pronouns: She/her
